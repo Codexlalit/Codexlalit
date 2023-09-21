@@ -10,8 +10,6 @@
 
 - 🌱 I’m currently learning **Meta Front-End Professional Certification**
 
-- 📫 How to reach me **Allaboutknew@gmail.com**
-
 - Check out with new view 👁️ - **whycodexlalit.framer.ai**
 
 - ⚡ Fun fact **I'm funny😅**
